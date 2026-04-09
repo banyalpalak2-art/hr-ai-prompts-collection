@@ -33,26 +33,36 @@ Objective
 
 * Created a professional hiring poster for Data Analysts
 * Focus on modern corporate design and branding
+* <img width="452" height="519" alt="Screenshot 2026-04-09 101948" src="https://github.com/user-attachments/assets/2df8704e-7ad9-4004-96a0-48e8b8a7ff50" />
+
 
 🔹 2. Employer Branding
 
 * Generated workplace visuals showing positive work culture
 * Suitable for LinkedIn and company branding
+* <img width="446" height="399" alt="Screenshot 2026-04-09 102000" src="https://github.com/user-attachments/assets/e99a328d-6988-4362-8c3d-a63613915053" />
+
 
 🔹 3. Work From Home Policy
 
 * Designed a clean illustration representing remote work
 * Used for HR policy communication
+* <img width="496" height="493" alt="Screenshot 2026-04-09 102116" src="https://github.com/user-attachments/assets/c16c2e03-0cf4-4224-ad10-6804e705b9e2" />
+
 
 🔹 4. Employee Engagement Activity
 
 * Created a vibrant poster for **“Team Building Day”**
 * Focus on creativity and employee interaction
+* <img width="531" height="486" alt="Screenshot 2026-04-09 102244" src="https://github.com/user-attachments/assets/9aef5ece-dbb3-4afa-a1f5-29d4b54b65d5" />
+
 
 🔹 5. Diversity & Inclusion Campaign
 
 * Designed visuals representing inclusive workplace culture
 * Promotes equality and collaboration
+* <img width="521" height="412" alt="Screenshot 2026-04-09 102220" src="https://github.com/user-attachments/assets/066f23cc-b893-44e8-a8d1-659b6447543d" />
+
 
 ---
 
